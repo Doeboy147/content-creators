@@ -1,2 +1,0 @@
-# content-creators
-content-creators
